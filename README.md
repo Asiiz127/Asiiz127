@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **alexmartintv@gmail.com**
 
-<h3 align="left">Connect with me: alexmartintv@gmail.com</h3>
+<h3 align="left">Connect with me: 601 35 61 07</h3>
 <p align="left">
 </p>
 
